@@ -2,11 +2,11 @@
 
 January was a month for the books. On top of a lot of professional stress, my partner and I spent much of the month caring for a sick family member, who passed away at the end of the month. So yeah... that was rough. 
 
-Death is an incredibly stressful situation, always. If you think of stress as a bucket, my bucket started 2019 brimming with professional stress, and adding this personal stress caused a complete overflow and severe feelings and symptoms of burnout. So I turned to the usual sources of advice for help in dealing with this. "Exercise more", "meditate", "make sure you're getting enough sleep"... but I was already doing all of those things! And here I was, with this overflowing bucket in spite of it.
+Death is an incredibly stressful situation, always. If you think of stress as a bucket, my bucket started 2019 brimming with professional stress, and adding this personal stress caused a complete overflow and severe feelings and symptoms of burnout. So I turned to the usual sources of advice for help in dealing with this. "Exercise more", "meditate", "make sure you're getting enough sleep"... but I was already doing all of those things. And here I was, with this overflowing bucket in spite of it.
 
 I had a big realization at this point. That was all great advice. Everyone should do those things (especially exercise!) But- none of those things actually fix anything. They are all coping mechanisms. They will all help you empty the bucket faster. But they don't do a damn thing to slow down the rate at which water is pouring *into the bucket*.
 
-That's the problem with most advice about stress. It is helpful, but it doesn't actually fix anything. If you want to get out from under burnout, you have to dig deeper than coping mechanisms. You've got to look at where the water is coming into the bucket. 
+That's the problem with most advice about stress. It is helpful, but it doesn't actually fix anything. If you want to get out from under burnout, you have to dig deeper than coping mechanisms. You've got to look at where the water is coming from.
 
 What does that mean? Well, for me, I started with reaching out to [an excellent professional community](https://engmanagers.github.io/). I was reminded of the importance of having a relationship with a therapist. I tried to break down and inventory my thoughts and actions. How much of them were about things I couldn't actually control (a lot)? How could I shift that to things I could control? [Marc Hedlund](https://twitter.com/marcprecipice) gave me some great advice to redirect my action to starting new awesome things, instead of trying to stop broken things. 
  
